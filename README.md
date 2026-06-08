@@ -13,4 +13,5 @@
                                       (.. I don't accept strangers friend req ..)
 
                     Doing art commissions as well! If you'd like more info, please dm me on discord: kxyoddie
+                    +CLOSED+
                                                       Thank Yew!
