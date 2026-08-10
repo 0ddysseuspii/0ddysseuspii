@@ -9,9 +9,6 @@
                                                      time 4 u!
 
 
-                              Mainly on PT and Rblx, Fishyy_Odds if you wanna follow me!
+                              Mainly on PT, disc and Rblx, Fishyy_Odds if you wanna follow me!
                                       (.. I don't accept strangers friend req ..)
-
-                    Doing art commissions as well! If you'd like more info, please dm me on discord: kxyoddie
-                    +CLOSED+
-                                                      Thank Yew!
+                                         too dumb to make a proper repo bye
